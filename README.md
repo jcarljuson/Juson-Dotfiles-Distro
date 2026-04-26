@@ -1,6 +1,6 @@
   maybe in the future i'll fill this repo up?
 
-yo blud
+yo bluds
 
 ill start soon idk when tho
 
